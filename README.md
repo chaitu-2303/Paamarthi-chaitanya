@@ -1,1 +1,0 @@
-# Paamarthi-chaitanya
